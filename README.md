@@ -2,7 +2,7 @@
 
 🌍 **Metaverse Game Project Manager | Face of Partnerships & Business Development | Web3 Gaming & Partnerships**  
 Former PM at Virtual Labs (Based in Singapore)
-Former BD and Partnerships at Tashi Protocol (Based in Singapore)
+& Former BD and Partnerships at Tashi Protocol (Based in Singapore)
 
 ---
 
